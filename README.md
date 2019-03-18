@@ -1,5 +1,5 @@
 #Archivo de documentación
 
-Cambios realizados por ':D'
+Cambios realizados por '(=^-^=)'
 
 	\-(._.)-/
